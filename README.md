@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @pi100111
-- 👀 I’m interested in in networkign and also i'm interested in football
+- 👀 I’m interested at networkign, actually my dream is to be football player then i love to designing something beacause i want to give all of my imagination.
 - 🌱 I’m currently learning JHS lesson, cause i'm still JHS
 - 💞️ I’m looking to collaborate on Instagram, Git-Hub, Linkedin, Etc
 - 📫 How to reach me Use Instagram, linkedin, Whatsaap Etc
